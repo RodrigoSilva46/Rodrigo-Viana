@@ -6,7 +6,7 @@
 
 🚀 Criei este perfil para mostrar minhas habilidades, aprender com profissionais experientes e contribuir com a comunidade de dados. Estou determinado a construir uma carreira sólida como analista/cientista de dados e aguardo ansiosamente as oportunidades de aprendizado e crescimento que este ambiente oferece.
   
-◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►
+◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►◄►
 
 👋 Hi there! I'm Rodrigo Viana Carneiro da Silva
 
